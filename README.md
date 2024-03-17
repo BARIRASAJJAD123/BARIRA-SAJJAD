@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Data Science.
 - 💞️ I’m looking to collaborate on related projects.
 - 📫 How to reach me barirasajjad36@gmail.com 
-- 😄 Pronouns: Its Me BARIRA 
+- 😄 Pronouns: She/Her
 - ⚡ Fun fact: All Mess up
 
 <!---
